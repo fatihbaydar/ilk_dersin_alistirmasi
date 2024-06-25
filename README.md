@@ -1,0 +1,1 @@
+# ilk_dersin_alistirmasi
